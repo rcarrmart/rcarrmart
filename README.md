@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Roberto Carrera-Martínez (@rcarrmart)
-- 👀 I’m interested in soil organism taxonomy, phylogeography, biogeography and evolution. I focus on earthworm. 
+- 👀 I’m interested in soil organism taxonomy, phylogeography, biogeography and evolution, specializing on earthworms in the Caribbean. 
 - 📫 You can reach me through my Twitter [@rcarrmart](https://twitter.com/RCarrMart)
 - Find more about my work on my [ResearchGate](https://www.researchgate.net/profile/Roberto-Carrera-Martinez) 
 <!---
