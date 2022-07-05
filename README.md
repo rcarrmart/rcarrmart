@@ -4,7 +4,7 @@ For my PhD I am studying Caribbean earthworm taxonomy, phylogeography, biogeogra
 
 - 📫 You can reach me through my Twitter [@RCarrMart](https://twitter.com/RCarrMart) or email (rcarrmart@gmail.com).
 
-- :books: Find more about my work on my [ResearchGate](https://www.researchgate.net/profile/Roberto-Carrera-Martinez), my [Google Scholar Profile](https://scholar.google.com/citations?user=Kq_D3PQAAAAJ&hl=en&oi=ao), and the [Molecular Ecology Lab webpage](https://molecularecology.russell.wisc.edu/)
+- :books: Find more about my work on [ResearchGate](https://www.researchgate.net/profile/Roberto-Carrera-Martinez), [Google Scholar](https://scholar.google.com/citations?user=Kq_D3PQAAAAJ&hl=en&oi=ao), and the [Molecular Ecology Lab webpage](https://molecularecology.russell.wisc.edu/)
 
 - 🗣️ English / Español / Ein bisschen Deutsch
 
