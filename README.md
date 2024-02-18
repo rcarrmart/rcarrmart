@@ -1,4 +1,4 @@
-Hello there, I’m Roberto Carrera-Martínez (@rcarrmart). I am currently a PhD Student at the Department of Integratrive Biology, University of Wisconsin - Madison. 
+Hello there, I’m Roberto Carrera-Martínez (@rcarrmart). I am currently a PhD Candidate at the Department of Integratrive Biology, University of Wisconsin - Madison. 
 
 For my PhD I am studying Caribbean earthworm taxonomy, phylogeography, biogeography and evolution, with special interest in trait evolution and diversification. I am focussing in the _Trigaster_ group of genera, but I am also interested in other Caribbean and Neotropical earthworm taxa (for example, the Rhinodrilidae, Ocnerodrilidae and other Acanthodrilidae).
 
